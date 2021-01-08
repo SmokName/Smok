@@ -1,0 +1,2 @@
+# Smok
+Šmøķ Nedoprogramist
